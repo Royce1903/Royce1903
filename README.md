@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Royce1903
+- 👀 I’m interested in Data science
+- 🌱 I’m currently learning Data science
+- 💞️ I’m looking to collaborate with free lancers
+- 📫 How to reach me [...](https://www.instagram.com/its_me_harish_official/?utm_source=qr&igsh=MTFjaHA1bmMzYmowaw%3D%3D)
